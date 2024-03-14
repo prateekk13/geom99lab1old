@@ -1,4 +1,0 @@
-
-Cette publication hautement spécialisée, Natural Areas shapefile, n’est disponible qu’en anglais en vertu du Règlement 671/92 qui en exempte l’application de la Loi sur les services en français.  Pour obtenir de l’aide en français, veuillez communiquer avec le ministère des Richesses naturelles au Erika Luoma, erika.luoma@ontario.ca ou (705) 235-1219.
-
-We are committed to providing accessible customer service. For alternate formats, communication supports or more information, please contact the Ministry of Natural Resources and Forestry at 1-800-667-1940, or send an email to nhicrequests@ontario.ca.
